@@ -1,4 +1,4 @@
-# 
+# vip Logic Pro for macOS Extension | compressor + lens-flare offers the most advanced Logic Pro for macOS extension, with compressor and lens-flare. Ideal for professional video
 
 
 
